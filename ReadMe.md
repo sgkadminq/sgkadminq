@@ -18,3 +18,6 @@
 
 ## 客服查询
  [@Data888_botbot](https://t.me/Data888_botbot?start=NTgzNzg1NTEy)
+
+# 猪八戒查档 
+[@Zonesgk_bottbot](https://t.me/Zonesgk_bottbot?start=NTgzNzg1NTEy)
